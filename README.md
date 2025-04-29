@@ -1,0 +1,1 @@
+# tasarim_oruntuleri_odev
